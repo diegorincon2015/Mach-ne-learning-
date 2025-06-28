@@ -1,1 +1,1 @@
-
+ejercicios vistos en clase.
